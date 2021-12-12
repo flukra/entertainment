@@ -1,2 +1,2 @@
 # entertainment
-just a bunch of comments ;)
+dedicated for writing down a bunch of comments whenever I feeel bored or stressed
