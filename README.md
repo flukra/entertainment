@@ -1,2 +1,2 @@
 # entertainment
-dedicated for writing down a bunch of comments whenever I feeel bored or stressed
+dedicated for writing down a bunch of comments whenever I feel bored or stressed
